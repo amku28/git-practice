@@ -4,4 +4,6 @@ Over many a quaint and curious volume of forgotten lore-
 As of some one gently rapping, rapping at my chamber door.
 "'Tis some visitor," I muttered, "tapping at my chamber door-
 changeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+Only this and nothing more.”
 
+    Ah, distinctly I remember it was in the bleak December;
